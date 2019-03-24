@@ -1,5 +1,6 @@
 # 我的简历 
 ![杜狄鲜](https://upload.jianshu.io/users/upload_avatars/14433917/9be8c3fb-5e10-46d7-b54d-8f6445ca5e62.jpg?imageMogr2/auto-orient/strip|imageView2/1/w/120/h/120)
+<br />
 
 ## 姓名：杜狄鲜  
 ## 学历：本科
