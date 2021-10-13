@@ -16,6 +16,6 @@
  **希望能获得一份后期制作的工作**
  
  [作品链接](https://www.zhihu.com/zvideo/1431555311094702080)
-        [作品链接2] (https://wx.cctv.com/media/wap/video.html?cid=710&mpid=114)
+        [作品链接2](https://wx.cctv.com/media/wap/video.html?cid=710&mpid=114)
             [作品链接3](https://mp.weixin.qq.com/s/1jCS1Adnf3wpZipqIHHNVA)
            
