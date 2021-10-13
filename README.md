@@ -5,15 +5,17 @@
 ## 姓名：杜狄鲜  
 ## 学历：本科
 ## 性别：男
-## 专业：自动化
-## 教育经历：2015-2019成都理工大学工程技术学院
+## 专业：动画
+## 教育经历：2020——2022长春工业大学
 ## 个人技能
- - 熟悉PR PS AE
- - OFFICE计算机二级
- - 英语四级水平
+ - 熟悉PR PS AE  3dmax建模  
+ 
 
-# 2019毕业应届求职状态...
+# 20222再度毕业应届求职状态...
  
  **希望能获得一份后期制作的工作**
  
- [作品链接](http://baidu.com)
+ [作品链接](https://www.zhihu.com/zvideo/1431555311094702080)
+           (https://wx.cctv.com/media/wap/video.html?cid=710&mpid=114)
+           (https://mp.weixin.qq.com/s/1jCS1Adnf3wpZipqIHHNVA)
+           
